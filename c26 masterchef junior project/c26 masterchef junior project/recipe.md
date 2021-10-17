@@ -1,0 +1,4 @@
+In a heavy bottomed sauce pan, heat the sugar on medium low heat until its completely melted, swirling the pan gently every 20 seconds or so. The sugar will start to form clumps before melting slowly. Be patient and keep an eye on it to make sure it does not burn.
+Once melted, remove from heat immediately and stir in the butter. The mixture will violently bubble. You’re doing it right.
+Next, pour in the heavy cream and 1/2 teaspoon of the sea salt. Stir until everything is combined. Taste a spoonful of cooled caramel. If desired add the remaining sea salt to taste!
+Pour into small bowl or cup and allow to cool completely before using.
